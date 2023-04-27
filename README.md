@@ -2,4 +2,4 @@
 - 👀 I’m interested in car & moto
 - 🌱 I’m currently learning Informatic
 - 💞️ I’m looking to collaborate on auto construction company
-- 📫 How to reach me ...
+- 📫 How to reach me: https://linktr.ee/enricoschillaci
